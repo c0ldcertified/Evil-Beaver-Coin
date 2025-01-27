@@ -1,1 +1,1 @@
-# Evil-Beaver-Coin
+# Evil Beaver Coin
